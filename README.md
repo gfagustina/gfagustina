@@ -7,6 +7,7 @@ I am a professional book editor with seven years of experience in the publishing
 ### 📄 Portfolio & CV
 * [Download my CV (PDF)](./GAO%20Fan%20Books%20Commissioning%20Editor.pdf)
 * [View my Full Portfolio (PDF)](./visual%20portfolio.pdf)
+* [**Download Bilingual Book List (English & Chinese PDF)**](./Designed_Book_List_Bilingual.pdf)
 
 ### 📽️ Visual Projects
 * **Seacake1:** [YouTube Channel](https://www.youtube.com/@Seacake1) - A collection of video essays and improvisational stories.
