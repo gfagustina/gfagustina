@@ -5,7 +5,7 @@
 I am a professional book editor with seven years of experience in the publishing industry, specializing in education and social science. With a background in Art History, my work sits at the intersection of text and visual aesthetics—moving between the rhythm of a well-edited manuscript and the composition of a cinematic frame.
 
 ### 📄 Portfolio & CV
-* [Download my CV (PDF)](./GAO%20Fan%20Books%20Commissioning%20Editor.pdf)
+* [Download my CV (PDF)](./GAO Fan CV.pdf)
 * [View my Full Portfolio (PDF)](./visual%20portfolio.pdf)
 * [**Download Bilingual Book List (English & Chinese PDF)**](./Designed_Book_List_Bilingual.pdf)
 
