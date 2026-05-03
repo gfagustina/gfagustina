@@ -1,4 +1,4 @@
-## Hi there 👋 I am Agustina
+## Hi there 👋 I am GAO Fan (Agustina)
 ## Editor | Art Historian | Visual Storyteller
 
 ### About
