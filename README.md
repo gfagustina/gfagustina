@@ -18,7 +18,7 @@ I am a professional book editor with seven years of experience in the publishing
 * **千年武梁祠** – *A study on Art History, 2019* | [Read PDF](./千年武梁祠.pdf)
 * **漢畫像「亭長」考** – *Exploring Art History, 2019* | [Read PDF](./漢畫像「亭長」考.pdf)
 * **亨利·德·图卢兹·罗特列克浮生巴黎全球巡回艺术大展** – *Analysis of Art Reviews, 2023* | [Read PDF](./亨利·德·图卢兹·罗特列克浮生巴黎全球巡回艺术大展.pdf)
-* **小城之春** – *Politics in movies, 2024* | [Read PDF](./小城之春.pdf)
+* **废冷翠：电影《小城之春》** – *Politics in movies, 2019* | [Read PDF](./小城之春.pdf)
 * **电影里的孩子** – *Kids and Photography, 2024* | [Read PDF](./电影里的孩子.pdf)
 
 ---
