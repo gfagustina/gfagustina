@@ -26,7 +26,7 @@ I am a professional book editor with seven years of experience in the publishing
 ### ✉️ Contact
 [agustinagao00@gmail.com](mailto:agustinagao00@gmail.com) 
 
-* 🔭 **Current Project:** Working on an indie movie shooting and editing[cite: 1].
-* 🌱 **Currently Learning:** How to be real.
-* 💬 **Ask me about:** Movies, music, and the 19th-century aesthetic[cite: 1].
+* 🔭 **Current Project:** Working on an indie movie shooting and editing.
+* 🌱 **Currently Learning:** Painting.
+* 💬 **Ask me about:** Movies, music, and the 19th-century aesthetic.
 * ⚡ **Fun fact:** I am a nerd writer and level 10 Pipa player.
