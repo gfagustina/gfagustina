@@ -19,7 +19,7 @@ I am a professional book editor with seven years of experience in the publishing
 * **漢畫像「亭長」考** – *Exploring Art History, 2019* | [Read PDF](./漢畫像「亭長」考.pdf)
 * **亨利·德·图卢兹·罗特列克浮生巴黎全球巡回艺术大展** – *Analysis of Art Reviews, 2023* | [Read PDF](./亨利·德·图卢兹·罗特列克浮生巴黎全球巡回艺术大展.pdf)
 * **废冷翠：电影《小城之春》** – *Politics in movies, 2019* | [Read PDF](./小城之春.pdf)
-* **电影里的孩子** – *Kids and Photography, 2024* | [Read PDF](./电影里的孩子.pdf)
+* **电影里的孩子** – *Kids and Photography, 2024* | [Read PDF](./电影《蓝风筝》与《黑炮事件》中的儿童视角.pdf)
 
 ---
 
